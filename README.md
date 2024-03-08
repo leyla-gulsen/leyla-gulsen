@@ -4,3 +4,5 @@
 - 📫 How to reach me leylasgulsen@hotmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I have a cat named Sushi and I'm Turkish!
+
+***Feel free to check out my work through my repositories! Most of my work includes university course projects.***
